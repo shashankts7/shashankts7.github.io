@@ -1,5 +1,4 @@
 # shashankts7.github.io
-# Hi there! 👋
 
 # Hi there! 👋
 
